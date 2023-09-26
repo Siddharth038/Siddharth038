@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Siddharth038](https://github.com/Siddharth038)
 
-- 📫 Reach me view mail **siddharthchauhan038@gmail.com**
+- 📫 Reach me vie mail **siddharthchauhan038@gmail.com**
 
 - 📄 Know about my experiences [https://docs.google.com/uc?export=download&id=1_9T_rfkP7Gf_6m-ktRR4UHsSrqMK5i3Z](https://docs.google.com/uc?export=download&id=1_9T_rfkP7Gf_6m-ktRR4UHsSrqMK5i3Z)
 

@@ -11,7 +11,7 @@
 
 - 📫 Reach me vie mail **siddharthchauhan038@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/uc?export=download&id=1hq7SL75yUPfduAyLfP_fHb3UmX3T6EYI](https://docs.google.com/uc?export=download&id=1hq7SL75yUPfduAyLfP_fHb3UmX3T6EYI)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Apg_0mABqvT_rBoZtdm0hcksS9CqfIEA/view?usp=drive_link](https://drive.google.com/file/d/1Apg_0mABqvT_rBoZtdm0hcksS9CqfIEA/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

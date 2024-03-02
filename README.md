@@ -10,7 +10,7 @@ A passionate Software developer from India<br>
 
 ### 🔝 Top Contributed Repo
 
-<img align="right" src="https://github.com/Siddharth038/Siddharth038/assets/144778638/1c859025-86a2-4b8b-bed6-8e64f62b5186" alt="gif" width="350" style="margin-top: -20px;">
+<img align="right" src="https://github.com/Siddharth038/Siddharth038/assets/144778638/1c859025-86a2-4b8b-bed6-8e64f62b5186" alt="gif" width="300" style="margin-top: -20px;">
 
 ![](https://github-contributor-stats.vercel.app/api?username=Siddharth038&limit=5&theme=dark&combine_all_yearly_contributions=true)
 
